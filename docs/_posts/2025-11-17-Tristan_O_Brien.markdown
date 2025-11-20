@@ -25,5 +25,11 @@ today was really fun and it really turned out how i expenced i enjoyed the eneir
 
 todays time table looks intresting we have breakfast , ai , coral reef consensus and a sustainablilty project . today sounds like a good intresting day 
 
-the breakfast was really nice and filling and i got to catch up with some of the other people on the group 
+the breakfast was really nice and filling and i got to catch up with some of the other people on the group . we learned about ai and how it made and how to use notebooklm. i found that really intresting and very helpful and . we then helped ai learned what corral looks like . then we made a presientaion on rain gardens that we then had to present the project to the others and learned that it is easy enough to present to a small group .
+
+
+
+
+# Day 5 
+
 
