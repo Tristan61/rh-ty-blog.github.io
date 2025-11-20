@@ -25,3 +25,4 @@ today was really fun and it really turned out how i expenced i enjoyed the eneir
 
 todays time table looks intresting we have breakfast , ai , coral reef consensus and a sustainablilty project . today sounds like a good intresting day 
 
+the breakfast was really nice and filling and i got to catch up with some of the other people on the group 
