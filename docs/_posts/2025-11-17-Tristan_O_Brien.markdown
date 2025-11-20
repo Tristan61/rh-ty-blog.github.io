@@ -15,4 +15,13 @@ We started off by doing a daily meeting about what we did yesterday and if we wa
 
 # Day 3 
 
-on to days time table there is history of comuting ,bash/command line , student life and an engineering task . today sounds really fun and enjoyable . i don't think there will be as much work as yesterday but there still will be. i am really looking forward to the engineering task as i think i will be really go at it 
+On to days time table there is history of comuting ,bash/command line , student life and an engineering task . today sounds really fun and enjoyable . i don't think there will be as much work as yesterday but there still will be. i am really looking forward to the engineering task as i think i will be really go at it 
+
+today was really fun and it really turned out how i expenced i enjoyed the eneiring project because we got to build rollcosters and see if they worked mine didn't really . the bash was also very good as i have never used it be for but it was really easy to use . the histoy of computing was intresting becase i learned new thinks i learned about other jobs that arent just to do with coding and i also learned about how companys make money with things they already have for comupting . i also found the student life chat intresting as i though you are stuck in the job you pick but alot of the time your not and you can retrain as loads of things 
+
+
+
+# Day 4 
+
+todays time table looks intresting we have breakfast , ai , coral reef consensus and a sustainablilty project . today sounds like a good intresting day 
+
