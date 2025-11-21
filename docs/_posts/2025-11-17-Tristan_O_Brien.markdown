@@ -32,4 +32,4 @@ the breakfast was really nice and filling and i got to catch up with some of the
 
 # Day 5 
 
-
+today we learned about rasberry py and how to code a rc car which was reallly fun and intersting as i have never done before . i am looking forward to the pizza party and racing my rc car as i think that it is going ot be really fun . i have enjony my week in red hat and found it very intresting all the activitys we did were really fun and i really enjoyed them . i don't think will be becoming a software enerinrge as the coding and other things i do thing i was good at but other than that it was really fun .
